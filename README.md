@@ -1,4 +1,4 @@
-# **✨ isaque ✨**
+# **✨ Isaque ✨**
 
 **🔸 Desenvolvedor Full-Stack com conhecimento moderado a avançado em:**
 
